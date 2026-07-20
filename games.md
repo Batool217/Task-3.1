@@ -1,0 +1,1 @@
+Minecraft is a fun and creative game where players can build, explore, and survive in an open world. It offers many game modes and encourages creativity. I enjoy it because it is relaxing and can be played with friends. I would rate it 9/10.
